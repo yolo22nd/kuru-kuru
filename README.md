@@ -1,2 +1,0 @@
-# kuru-kuru
-iykyk
